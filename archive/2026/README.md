@@ -1,4 +1,4 @@
-# Research work artifacts in 2025
+# Research work artifacts in 2026
 
 ## Summer semester
 
